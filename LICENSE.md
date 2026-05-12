@@ -1,4 +1,4 @@
-#  
+#  Experience rivals like never before with smart rivals Script, the #1 Script. Includes private server access and custom skins for unbeatable
 
 
 
